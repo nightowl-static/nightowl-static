@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Mina
+- 👀 I’m interested in learning new things
+- 🌱 I’m currently new to this.
+- 📫 How to reach me:dailyfuss77@gmail.com or in discord 
+- ⚡ Fun fact: I am a church founder. 
